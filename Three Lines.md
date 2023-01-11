@@ -1,0 +1,1 @@
+My name is Aidan Gowland, I’m an MA student in the Department of Geography at the University of Victoria. My research focuses on Indigenous access to public spaces and how reduced access to, and jurisdiction over, these lands affects Canada’s compliance with the United Nations Declaration on the Rights of Indigenous Peoples.
